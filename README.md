@@ -1,4 +1,4 @@
-# hello-world
+# 选择滚和选择忍的人生之路
 if you cann't standard this situation,you will choose fuck off or bear off the blow?
 一个分叉路口，你选择一个或者选择另外一个的时候，也意味着你会得到什么，失去什么？人生总是在做各种选择，无论是被迫选择或者跟随自己的想法。
 
